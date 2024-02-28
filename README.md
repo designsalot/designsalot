@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @designsalot
+- 👀 I’m interested in Design, Traveling, Music and Creating the most stupid things that you won't buy
+- 🌱 I’m currently learning Framer and Coding
+- 💞️ I’m looking to collaborate on UI/UX projects, Only if you pay 🤑
+- 📫 How to reach me - https://bento.me/thatguywhodesigns
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Someone who tries has an advantage on someone who wishes.
